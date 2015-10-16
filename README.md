@@ -1,2 +1,2 @@
 #just breathe
-come here when you’re freaking out
+come here when you’re freaking out.
